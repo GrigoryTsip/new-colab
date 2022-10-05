@@ -8,4 +8,4 @@
 
 ## А это я (чтобы не спутали!)
 
-![img](../../%D0%9B%D0%B8%D1%87%D0%BD%D0%BE%D0%B5/%D0%A4%D0%BE%D1%82%D0%BE/%D0%92%D0%BE%D1%81%D1%85%D0%BE%D0%B4.jpg)
+![Восход](https://user-images.githubusercontent.com/113826725/194019397-29cdc677-60d5-48fe-b14e-58e0ee5585aa.jpg)
